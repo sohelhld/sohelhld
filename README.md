@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **haldersohelrana@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19ievoSibqgHSuJ7zx5kMWDRLZLw9k-WW/view?usp=sharing](https://drive.google.com/file/d/19ievoSibqgHSuJ7zx5kMWDRLZLw9k-WW/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19ievoSibqgHSuJ7zx5kMWDRLZLw9k-WW/view?usp=sharing](https://drive.google.com/file/d/19ievoSibqgHSuJ7zx5kMWDRLZLw9k-WW/view?usp=sharing](https://drive.google.com/file/d/19ievoSibqgHSuJ7zx5kMWDRLZLw9k-WW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
