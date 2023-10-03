@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **CSS,HTML,JS,REACT,NODE,MONGODB,SQL**
 
-- 👨‍💻 All of my projects are available at [sohelhld.github.io](sohelhld.github.io)
+- 👨‍💻 All of my projects are available at (sohelhld.github.io)
 
 - 📫 How to reach me **haldersohelrana@gmail.com**
 
